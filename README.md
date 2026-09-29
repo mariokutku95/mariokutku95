@@ -23,6 +23,8 @@ I still use Scratch to this day, but in the form of *Turbowarp*, a separate prog
 
 ---
 
+![Trampydrunk](https://mewgenics.wiki.gg/images/MINIBOSS_Trampy_Idle_%28Drunk%29.gif?2a8153=&format=original)
+
 More things i like:
 
 - Pizza tower
@@ -45,8 +47,6 @@ More things i like:
 ---
 
 ### Trampy from Mewgenics is my spirit animal <3
-
-![Trampydrunk](https://mewgenics.wiki.gg/images/MINIBOSS_Trampy_Idle_%28Drunk%29.gif?2a8153=&format=original)
 
 ![Trampy](./images/Trampyxd.png)
 *i made this drawing hehe*
