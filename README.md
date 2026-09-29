@@ -2,6 +2,8 @@
 ## You can also call me *Yian*, that's my online nickname.
 ### ~~Yes, i took it from Monster Hunter's Yian-Kut-Ku.~~
 
+![Niko](https://static.wikia.nocookie.net/oneshot/images/c/c6/Niko_roomba2.gif/revision/latest?cb=20170403134907)
+
 I'm an 18 year old with a special interest for programming, videogames, and basically technology in general! I also love moths, mainly because i used to raise silk moths. I like them so much my sona (the way i represent myself on the internet) is a moth!
 
 ![Kyu](./images/droolkyu.png)
@@ -10,6 +12,8 @@ bwehh
 ---
 
 I've been into programming ever since **2020**, when i first got interested thanks to Scratch! 😺 Ironically enough, such a simple program helped me get into this world and also improve my drawing capabilities! (Now i use *vector programs* to draw thanks to it lmao).
+
+
 
 #### Another example of a vector drawing (my sona already is one :P):
 
@@ -38,4 +42,16 @@ More things i like:
 
 ### *My discord:* yiankutku13
 
-![Trampy](./Captura de pantalla 2026-09-02 192429.png)
+---
+
+### Trampy from Mewgenics is my spirit animal <3
+
+
+![Trampy](./images/Trampyxd)
+*i made this drawing hehe*
+
+![Trampydrunk](https://mewgenics.wiki.gg/images/MINIBOSS_Trampy_Idle_%28Drunk%29.gif?2a8153=&format=original)
+
+---
+
+# Well, that's all... Bye!
