@@ -47,7 +47,7 @@ More things i like:
 ### Trampy from Mewgenics is my spirit animal <3
 
 
-![Trampy](./images/Trampyxd)
+![Trampy](./images/Trampyxd.png)
 *i made this drawing hehe*
 
 ![Trampydrunk](https://mewgenics.wiki.gg/images/MINIBOSS_Trampy_Idle_%28Drunk%29.gif?2a8153=&format=original)
